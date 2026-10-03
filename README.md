@@ -1,0 +1,2 @@
+# premium-upset-block-001-upset-block-forging-heading
+Are you tired of losing critical die measurements and forging parameters between projects? This Notion template turns your upset block forging and heading die craft studio into a repeatable, organized system.  This template eliminates the chaos of scattered notes and spreadsheets by centralizing all upset block forging specs, heading die designs, a
